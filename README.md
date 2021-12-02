@@ -2,6 +2,8 @@
 Some good questions to ask your interviewer
 
 # Comments from this [reddit post](https://www.reddit.com/r/AskReddit/comments/7o8qr7/what_are_good_questions_to_ask_the_interviewer/)
+![image](https://user-images.githubusercontent.com/22425217/144521675-208c1bac-53e4-499a-a999-6fc02d31ecca.png)
+
 1. What separates someone who is adequate at this position from someone who is exceptional at this position?
 2. "What would someone need to do in their first three months/six months/year in this job in order to be considered successful?" It shows that you're looking beyond simply getting hired and that you want to be a hot runner right out of the gate.
 3. My go-to when they ask is to say, "did any of my answers raise any areas of concern? Or would you like any more clarification on anything?" Never leave and say you don't have any other questions. Ask about the next steps for the hiring process, when they expect to make a decision. Always find a way to ask the interviewer. What skills would a candidate have that would make them excel in the role, then spin that around and give examples of how you have those skills. Interviewing gets better with practice, I was lucky enough to have a manager early in my career to help me do mock interviews.
