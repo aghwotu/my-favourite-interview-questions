@@ -23,7 +23,7 @@ Some good questions to ask your interviewer
 10. "What do you think the biggest challenge for someone coming into this position would be?"
     - "In the context of this position, how would you define success?"
     - "What would you like to see accomplished in the first 90 days?"
-11.  My goto is always: if there is a second interview, what skill set would you like me to be more up to speed on by that time? (Work in technology). Shows that you’re interested in being a better fit for them, Luke’s to learn, a go getter, and all that shit.
+11.  My goto is always: if there is a second interview, what skill set would you like me to be more up to speed on by that time? (Work in technology). Shows that you’re interested in being a better fit for them, likes to learn, a go getter, and all that shit.
 12. Is there anything I could have done during this interview to improve my chances?
 Whatever the answer you'll learn how to improve yourself.
 
